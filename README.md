@@ -5,7 +5,7 @@ bestia,</br>
 en eso te convertiste,</br>
 para vivir delinquiste,</br>
 intoxicaste a otros,</br>
-con su propio alpiste.</br>
+con tu propio alpiste.</br>
 </br>
 Te imaginabas a hadas,</br>
 la libertad,</br>
